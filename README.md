@@ -8,5 +8,5 @@ The height of the outlook is 72 feet above the Kentucky River
 
 Here is a fly through of the area on Youtube 
 ![Youtube Screenshot](/flythrough.jpg)
-(https://youtu.be/dM-YXmdGcg8)
+(https://youtu.be/dM-YXmdGcg8 )
 
